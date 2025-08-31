@@ -1,4 +1,4 @@
-# User manual
+# User Redmi Note13 l
 
 [[toc]]
 
